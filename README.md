@@ -1,2 +1,0 @@
-# spam-Instagram
-سبارم انستكرام
